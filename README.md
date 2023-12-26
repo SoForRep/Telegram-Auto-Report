@@ -1,7 +1,7 @@
 🔥 Telegram Auto Report (By SniperSpy) 🔥 
        <br>
        
-╭━━╴♻️ Upgrade 14.12.2023
+╭━━╴♻️ Upgrade 26.12.2023
 <br>
 ├  All users accounts is Update + Proxy.
 <br>
